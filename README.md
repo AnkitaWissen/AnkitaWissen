@@ -21,6 +21,6 @@ Here are a few projects I've been working on:
 
 Feel free to reach out to me if you want to collaborate on a project, discuss new ideas, or just chat about tech!
 
-- 📧 Email: [your.email@example.com]
+- 📧 Email: [contactankitask@gmail.com]
 
 Thanks for visiting my profile! Let's learn and grow together. 🚀
